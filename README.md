@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new skills and CP
 - 🌱 I’m currently learning CP
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me through linkedin through below link.
+- 📫 How to reach me - linkedin profile through below link.
 https://www.linkedin.com/in/jay-dave-7307b11ba/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3B7u0vG2CxSfed9fs1rFQFXQ%3D%3D
 
 <!---
