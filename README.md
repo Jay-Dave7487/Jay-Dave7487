@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jay-Dave7487
 - 👀 I’m interested in learning new skills and Android Development
-- 🌱 I’m currently working on android projects
+- 🌱 I’m currently working on problem solving skills and DSA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me - linkedin profile through below link.
 https://www.linkedin.com/in/jay-dave-7307b11ba/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3B7u0vG2CxSfed9fs1rFQFXQ%3D%3D
