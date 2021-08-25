@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Jay-Dave7487
+- I am studing Btech IT(2020 - 2024) from Charusat University
 - 👀 I’m interested in learning new skills and Android Development
 - 🌱 I’m currently working on problem solving skills and DSA
 - 💞️ I’m looking to collaborate on ...
